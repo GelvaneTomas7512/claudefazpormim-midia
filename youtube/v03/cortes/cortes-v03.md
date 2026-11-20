@@ -1,6 +1,6 @@
 # Cortes verticais · vídeo 3
 
-Vídeo completo no YouTube: https://youtu.be/I5woBj2QW08
+Vídeo completo no YouTube: https://youtu.be/l5woBj2QW08
 
 1080x1920, legendas dentro da área segura, selo "apresentadora de IA", gancho nos 2s iniciais e CTA "me segue" no fim.
 
